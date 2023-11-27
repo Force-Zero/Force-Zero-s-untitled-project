@@ -1,2 +1,2 @@
 # Force-Zero-s-untitled-project
-discord.gg
+https://discord.gg
